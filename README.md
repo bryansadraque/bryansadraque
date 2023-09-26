@@ -9,7 +9,7 @@ meu nome é bryan sadraque
 - utilizo esse espaço para compartilha meus projetos
 
 
-### vc  entrar em contado comigo 📬
+### vc pode entrar em contado comigo 📬
 
 bryan.arrais.souza@escola.pr.gov.br
 
